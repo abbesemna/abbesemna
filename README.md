@@ -11,5 +11,5 @@
 
 - How to reach me :
   E-mail: **emnabbes.pro@gmail.com**
-  LinkedIn: **[https://www.behance.net/abbesemna](https://www.linkedin.com/in/emnabbes/)**
+  LinkedIn: **[[https://www.linkedin.com/in/emnabbes/]](https://www.linkedin.com/in/emnabbes/)**
 
